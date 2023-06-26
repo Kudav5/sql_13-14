@@ -1,0 +1,1 @@
+# Penjelasan ada di folder 13 dan 14
