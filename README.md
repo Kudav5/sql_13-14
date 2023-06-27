@@ -1,1 +1,1 @@
-# Penjelasan ada di folder 13 dan 14
+# Penjelasan ada di folder 13 dan 14 sesuai pertemuan
